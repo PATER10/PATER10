@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @PATER10
+- My name is Patryk
+- 👀 I’m interested in football, handball and programming
+- Contact: pat.04@o2.pl
